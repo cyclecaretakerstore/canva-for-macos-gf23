@@ -1,4 +1,4 @@
-
+Get the ultimate Canva for macOS plugin with Canva for macOS secure Plugin: content-aware fill & plugin support. Featuring content-aware fill and plugin support, it's the best
 
 
 
